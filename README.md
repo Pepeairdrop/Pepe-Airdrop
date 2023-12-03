@@ -1,5 +1,4 @@
 # Pepe-Airdrop
-Pepe Airdrop
 
 Pepe Coin Airdrop - Claim  Free Pepe Token
 
