@@ -15,8 +15,6 @@ What makes PEPE stand out from the rest? Here are just a few reasons why you sho
 
 So, what are you waiting for? Head over to PEPE today and claim your free PEPE tokens. It's time to embrace the world of cryptocurrency and start building your digital asset portfolio. Remember, this offer won't last forever - act now and secure your future with PEPE!
 
-Disclaimer: Please note that cryptocurrency investments come with risks. Make sure to do your research and seek professional advice before making any financial decisions.
-
 https://pepe.great-site.net 
 
 
